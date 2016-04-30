@@ -1,1 +1,1 @@
-Sumer daya MTQ Sumba Tengah
+Sumber daya MTQ Sumba Tengah
